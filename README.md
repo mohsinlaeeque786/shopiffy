@@ -3,7 +3,10 @@ Shop from our wide range of products at the UK premium department store. Shop on
 
 -------------------------------------------------------------
 
-A Project of VOIPAR - Zafar Ullah - CEO
+A Project of VOIPAR 
+
+Zafar Ullah - CEO
+
 LINK : https://www.voipar.com/
 
 -------------------------------------------------------------
